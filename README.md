@@ -1,1 +1,0 @@
-# BlueCT-MG.github.io
